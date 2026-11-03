@@ -5,7 +5,7 @@ description: 深度解析新加坡南洋理工大学（Nanyang Technological Uni
 keywords: 新加坡南洋理工大学毕业证, Nanyang Technological University Diploma...
 ---
 
-# 新加坡南洋理工大学（Nanyang Technological University Diploma）含金量、认证流程及就业前景深度解析
+# 新加坡南洋理工大学毕业证（Nanyang Technological University Diploma）含金量、认证流程及就业前景深度解析
 
 作为全球顶尖的科研型高等学府，**新加坡南洋理工大学（Nanyang Technological University，简称 NTU）**在QS世界大学排名及泰晤士高等教育排名中长期稳居全球前30名，其工程学、计算机科学以及前沿的人工智能（Artificial Intelligence）等专业更是享誉海内外。
 
